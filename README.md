@@ -39,7 +39,7 @@ Please note that it is not encouraged to blindly apply to every company on this 
 | [August](http://august.com/jobs/#.Vo1p-JMrKHo) | San Francisco, CA |
 | [AutomatedInsights](https://automatedinsights.com/company) | Durham, NC |
 | [Automattic](https://automattic.com/work-with-us/) | San Francisco, CA |
-| 👉 **RESUME HERE** ⬇️ | — |
+| 👉 **RESUME HERE** ⬇️ *(2026-06-27)* | — |
 | [BambooHR](https://www.bamboohr.com/about/careers.php) | Lindon, UT |
 | [Benchling](https://benchling.com/careers) | San Francisco, CA |
 | [Bending Spoons](http://bendingspoons.com/careers.html) | Milan, Italy; Remote |
