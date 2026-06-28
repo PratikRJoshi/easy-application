@@ -39,7 +39,6 @@ Please note that it is not encouraged to blindly apply to every company on this 
 | [August](http://august.com/jobs/#.Vo1p-JMrKHo) | San Francisco, CA |
 | [AutomatedInsights](https://automatedinsights.com/company) | Durham, NC |
 | [Automattic](https://automattic.com/work-with-us/) | San Francisco, CA |
-| 👉 **RESUME HERE** ⬇️ *(2026-06-27)* | — |
 | [BambooHR](https://www.bamboohr.com/about/careers.php) | Lindon, UT |
 | [Benchling](https://benchling.com/careers) | San Francisco, CA |
 | [Bending Spoons](http://bendingspoons.com/careers.html) | Milan, Italy; Remote |
@@ -61,6 +60,7 @@ Please note that it is not encouraged to blindly apply to every company on this 
 | [Bungie](https://www.bungie.net/en/AboutUs/index#!page=careers) | Bellevue, WA |
 | [Busbud](https://www.busbud.com/en/careers) | Montreal, Quebec |
 | [BuzzFeed](https://www.buzzfeed.com/about/jobs) | Los Angeles, CA; New York, NY |
+| 👉 **RESUME HERE** ⬇️ *(2026-06-27)* | — |
 | [Canary](https://canary.is/careers/) | New York, NY |
 | [Capsule](https://www.capsulecares.com/about/) | New York, NY |
 | [Captain401](https://captain401.com/careers) | San Francisco, CA |
